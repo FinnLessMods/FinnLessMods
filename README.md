@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @FinnLessMods
-- I do modding and things.
-Thinking about making games...
+- I do many things.
 - Anyway heres my yt and twitch and curseforge
 - YT: https://www.youtube.com/channel/UCD_XLyG6BwYE17ljOmjw8uA
 - Twitch: https://www.twitch.tv/finnlesslive
